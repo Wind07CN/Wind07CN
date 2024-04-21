@@ -6,7 +6,7 @@
 
 The Cheapest Research Labour 科研农民工
 
-![Low-end Painters (already crushed by AI)](https://www.pixiv.net/users/19662823) 低端画师
+Low-end Painters (already crushed by AI) 低端画师 [Pixiv](https://www.pixiv.net/users/19662823) 
 
 Stay at Home University Honours Alumni 家里蹲大学荣誉校友
 
