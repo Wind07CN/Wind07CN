@@ -1,6 +1,6 @@
 # Welcome to No Man's Sky 
 
-# 被NUS课程折磨中导致没有背八股文找不到实习的菜逼
+# %100纯菜逼
 
 ## Who I am?
 
